@@ -30,6 +30,6 @@ Anyone can learn progarmming, but can they cope up with new technologies or make
 
 #### 🏘️ Available for Remote Freelance projects.
 
-- 💬 Ask me anything ...
+💬 Ask me anything ...
 
 

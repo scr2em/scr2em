@@ -8,7 +8,7 @@ Programming reminds me of a quote by Drew Houston
 
 *except that he was talking about blitzscaling*
 
-Anyone can learn progarmming, but can they cope up with new technologies or make them ? benefit their community ?  make people's lives easier ? that's the real questions.  👀 
+Anyone can learn progarmming, but can they cope up with new technologies or make them ? benefit their community ? or make people's lives easier ? those are the real questions.  👀 
 
 
 
